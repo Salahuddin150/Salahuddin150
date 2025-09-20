@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Salahuddin150
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning Harvard CS50 Web Programming with Python and JavaScript
+- 🌱 I’m a python programmer, wordpress developer, and AI trainer/data annotator.
 - 💞️ I’m looking to collaborate on AI projects
 - 📫 How to reach me saladinazad@gmail.com
 - 😄 Pronouns: he/him
