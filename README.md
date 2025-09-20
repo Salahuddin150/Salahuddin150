@@ -5,7 +5,7 @@
 - 📫 How to reach me saladinazad@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am an occasional actor.
-My first car was a 1978 Ford Ltd.
+My first car was a 1978 Buick Ltd.
 When I was 26, and had no job or money, I spent an entire summer sleeping in New York’s Central Park.
 I drove a cab in NY for 8 years. As a cab driver, I was robbed twice at gunpoint. 
 I have a library of more than two thousand books. 
