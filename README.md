@@ -6,7 +6,7 @@
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am an occasional actor.
 My first car was a 1978 Buick Ltd.
-When I was 26, and had no job or money, I spent an entire summer sleeping in New York’s Central Park.
+When I was in my 20s, and had money problems, I slept in my car for more than a week, slept in my apartment, without electricity, for more than a month, and slept in New York’s Central Park for several nights.
 I drove a cab in NY for 8 years. As a cab driver, I was robbed twice at gunpoint. 
 I have a library of more than two thousand books. 
 
